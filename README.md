@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **pankajbhatt5111@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/Dell/Downloads/Pankaj_Bhatt_Resume.pdf](file:///C:/Users/Dell/Downloads/Pankaj_Bhatt_Resume.pdf)
+- 📄 Know about my experiences [https://uploadnow.io/f/hMVM74t](https://uploadnow.io/f/hMVM74t)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
